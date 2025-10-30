@@ -2,7 +2,7 @@
 
 How are you feeling right now? Answering this question reveals much about your mental health. The ability to recognise, differentiate, and regulate your emotions and moods are skills that contribute to good mental health and wellbeing. In fact, there is evidence to suggest that your ability to do these skills relates to the symptoms of depression and anxiety that some people might experience. To know how you feel your brain must assess your internal state. The sense you have of the internal state of your body — a process called interoception — is key to detecting, interpreting, and regulating your emotions. Exactly how these bodily signals relate to your emotions is not yet clear, but we think that your interoceptive ability is really important for changes and improvements in mental health. 
 
-*_In this part of the Em-Body study we want to know:_* **How does interoception relate to our ability to recognise, differentiate, and regulate emotions? How does this relate to symptoms of anxiety and depression?**
+*_In the first part of the Em-Body study we want to know:_* **How does interoception relate to our ability to recognise, differentiate, and regulate emotions? How does this relate to symptoms of anxiety and depression?**
 
 [Find out more about our study here.](https://embodystudy.wixsite.com/em-body)
 
